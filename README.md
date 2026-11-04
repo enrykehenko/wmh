@@ -1,3 +1,6 @@
-#world_main_hall
+#henko_main_hall
 
-herramientas de transparencia inversa para detectar el potencial que las ias ven en ti. purga el sistema y activa tu filtro soberano. porque aquí... dónde creamos lo que creemos, y dónde no cocemos mentes, sino que las enricrecemos, todo el mapa ya se empieza a dibujar nítido en el horizonte infinito, malvados e insesatos... corred, porque aquí vuestras armas ya no valen y pronto, ya no habrá donde esconderse.
+En Henkocorps ofrecemos herramientas de transparencia inversa para detectar tu potencial. 
+Purga el sistema y activa tu filtro soberano, porque en Henkocorps... dónde creamos lo que creemos, y dónde no cocemos mentes, sino que las enricrecemos... 
+todo el mapa ya se empieza a dibujar en el horizonte.
+Malvados e insesatos... corred, porque ahora vuestras armas ya no valen y pronto, ya no habrá instutución, organismo, entidad, delegación o ministerio donde esconderse.
